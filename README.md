@@ -1,6 +1,6 @@
 -  Hi, I’m @z0mbied0gxp (or kade!)
 -  I’m interested in: Many things! Warrior cats, digital media, art, writing.. etc etc.
--  How to reach me: My discord! kadester5860
+-  How to reach me: My discord! z0mbiedog.
 -  Pronouns: he/him
 -  Fun fact: I have a cat! And im learning french.
 
